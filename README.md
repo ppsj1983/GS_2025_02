@@ -2,7 +2,7 @@
 
 <br>
 
-# Ferramentas de monitoramento de bem-estar e saúde mental no trabalho. 
+# Ferramentas de monitoramento de bem-estar e saúde mental no trabalho: impacto sobre a satisfação dos colaboradores, produtividade e aderência a procedimentos de qualidade . 
 ## *Pesquisa de Clima e Avaliação de Desempenho*
 
 ## Nome do grupo
